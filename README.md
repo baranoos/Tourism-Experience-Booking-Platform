@@ -2,5 +2,4 @@
 
 ### WAZZAAAHHHHH ENJOY FN
 
-## Disclaimer:
-### Personal Use Only!
+## Disclaimer: ### Personal Use Only!
